@@ -12,3 +12,6 @@ Emilia Isabelle Euphemia Rose Clarke (geboren am 23. Oktober 1986 in London, Eng
 * Filme: Ein ganzes halbes Jahr, Last Christmas, 
 * Ausbildung: Drama Centre London (2009), St Edward's School (2000–2005), Rye St Antony Independent School Oxford
 * Auszeichnungen: Scream Awards for Female Breakout Performance
+
+Emilia Clarke:
+> Never trust anyone whose TV is bigger than their book shelf.
