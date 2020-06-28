@@ -15,3 +15,5 @@ Emilia Isabelle Euphemia Rose Clarke (geboren am 23. Oktober 1986 in London, Eng
 
 Emilia Clarke:
 > Never trust anyone whose TV is bigger than their book shelf.
+
+<img src='https://i.pinimg.com/236x/4b/df/c7/4bdfc7400602eb3cda30fcd05bd23817.jpg'/>
